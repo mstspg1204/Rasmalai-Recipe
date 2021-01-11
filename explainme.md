@@ -1,0 +1,1 @@
+Juicy , creamy , milky , very popular in India . Do all these words lead you to a particular thing , it is rasmalai . We all love rasmalai , it is like juicy paneer and milk with almonds ,pistas and all delicious treats . 
